@@ -1,4 +1,4 @@
-ᛝ  　  　     　 　  　  [main](https://github.com/retrobive) , [alt](https://github.com/azuresz) , [rentry](https://rentry.co/forazures)
+ᛝ  　  　     　 　  　  [main](https://github.com/retrobive) , [alt](https://github.com/divine-resurrection)
 
 𝜗  　  　     Please check my main 4 info  　  　     　 　  　    　  　   about me!
 
